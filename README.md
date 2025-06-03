@@ -21,3 +21,10 @@ Published on March 15, 2016
 Free to use under the Pixabay License
 https://pixabay.com/de/photos/suppe-rindssuppe-rind-nockerl-1256023/
 (visited: 03062025)
+
+unsplash.com    
+Amin Safaripour (https://unsplash.com/@aminsafaripour)    
+Published on July 14, 2020  
+Free to use under the Unsplash License  
+https://unsplash.com/photos/bread-on-white-ceramic-plate-4hlTJRtbX4k
+(visited: 03062025) 
